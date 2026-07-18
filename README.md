@@ -1,4 +1,4 @@
-# Hi there 👋 I'm Misbah Un Noor N
+# Hi there 👋 I'm Misbah or you can call me Mizzy 
 
 ## 🛡️ Cyber Security Analyst | SC-200 Certified | Microsoft Security | Threat Hunter
 
